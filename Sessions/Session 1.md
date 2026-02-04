@@ -10,7 +10,7 @@ A guard said he witnessed Calmont summon the creature and set the fire and later
 
 Calmont Trenault  is the booksellers apprentice he is a halfling, Voz Lirayne is the bookseller.  
 
-Quest is to go to Citadel Altaerein and.
+Quest is to go to [[Citadel Alterain]] and.
 
 10G for contact the with Bomblebrashes
 
