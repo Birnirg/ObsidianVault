@@ -17,4 +17,14 @@ Gommel found Aleks Signet ring. We will explore the long tunnel that we expect l
 
 We followed the tunnel to the storage room of the pickled ear in Breachhill, there we got caught by the personnel and Roxy told us she had been hiding the secret entrance to the tunnel for Voz the bookseller.
 
-We went to the booksellers shop, found a note pertaining to the Guardian's Way. We headed there, found [[Voz Lirayne]] who turned out to be in kahoots with a female bugbear, a bug and had skeleton minions. We defeated her and are planning on questioning her. 
+We went to the booksellers shop, found a note pertaining to the Guardian's Way. She is looking for the ring of Asetta. In the Bookshop we found 4 scrolls
+
+Acid arrow - 2nd level - cost to learn 6gp
+False life - 2nd level - cost to learn 6gp
+Obscuring mist - 1st level - - cost to learn 2gp
+Touch of Idiocy - 2nd level - cost to learn 6gp
+
+![[Pasted image 20260221121817.png]]
+
+We headed there, found [[Voz Lirayne]] who turned out to be in kahoots with a female bugbear, a bug and had skeleton minions. We defeated her and are planning on questioning her. 
+
