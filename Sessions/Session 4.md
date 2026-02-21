@@ -30,7 +30,7 @@ Renalia offered to guide us to the place where the Cinder Claws where. she helps
 Willow and Carriss take one for themselfs. 
 
 5x Golden religius symbols of Dahak worth 20g each.
-5x +1 chain shirt.
+5x +1 chain shirt. 150g each.
 
 We then step into the Chamber with the rings, there are 6 arch ways. this are the Ayudara, they can transfer us to different places.  
 
