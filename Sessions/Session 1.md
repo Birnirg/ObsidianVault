@@ -1,6 +1,6 @@
 #session
 
-Worble ambassador of the Bomblebrashers, representative of the goblins of the citadel.Comes from a tribe of goblins that have lived in the citadel for years. They typically meet with the Chieftain Helba. Worble is sick with worry since the signal fires have been the color of distress signal for the past 2 weeks.
+Worble ambassador of the Bomblebrashers, representative of the goblins of the citadel. Comes from a tribe of goblins that have lived in the citadel for years. They typically meet with the Chieftain Helba. Worble is sick with worry since the signal fires have been the color of distress signal for the past 2 weeks.
 
 At the town hall, while telling us about all this, a man burst into the town hall, telling us about fire and a fire mephit comes into the room after him and starts setting the town hall on fire. 
 

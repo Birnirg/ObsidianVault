@@ -17,12 +17,14 @@ Gommel found Aleks Signet ring. We will explore the long tunnel that we expect l
 
 We followed the tunnel to the storage room of the pickled ear in Breachhill, there we got caught by the personnel and Roxy told us she had been hiding the secret entrance to the tunnel for Voz the bookseller.
 
-We went to the booksellers shop, found a note pertaining to the Guardian's Way. She is looking for the ring of Asetta. In the Bookshop we found 4 scrolls
+We went to the Greta Gardenia, leader of the city council and she gave us a quest of going to find Voz. 
 
-Acid arrow - 2nd level - cost to learn 6gp
-False life - 2nd level - cost to learn 6gp
-Obscuring mist - 1st level - - cost to learn 2gp
-Touch of Idiocy - 2nd level - cost to learn 6gp
+We went to the booksellers shop, found a note pertaining to the Guardian's Way. She is looking for the ring of Alsetta. In the Bookshop we found 4 scrolls
+
+Acid arrow - 2nd level - cost to learn 6gp Learned 1.4g
+False life - 2nd level - cost to learn 6gp Learned 1.4g
+Obscuring mist - 1st level - - cost to learn 2gp Learned 0g
+Touch of Idiocy - 2nd level - cost to learn 6gp Learned 2.9g
 
 ![[Pasted image 20260221121817.png]]
 
