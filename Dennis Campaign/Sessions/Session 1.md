@@ -30,10 +30,7 @@ female rogue employed by the Seraphs.
 
 A young male of middle hight, long unkempt hair, dirty hands with smudges of oil. He has interests in different kinds of inventions and mechanics. 
 
-  
-  
-  
-  
+   
 
 ### Timothy ( Thomas ) 
 
