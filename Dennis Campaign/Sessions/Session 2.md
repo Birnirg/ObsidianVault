@@ -22,6 +22,8 @@ Back at the cabin Darrion, Clem and Frank set up traps
 
 R, T and E tried to track the Barghest and found a den where they thought it was hiding, but then realized that the Barghest might have been distracting us and would possibly be attacking the Cabin. 
 
+![[CabinTraps.jpg|369]]
+
 ## NPC
 
 The 3 citizens from Or. 
