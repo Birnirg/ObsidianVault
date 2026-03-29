@@ -2,3 +2,4 @@ Hellknight citadel that has fallen to ruins. It is said a deed lies within, whic
 [[Darwin]] read the deed, becoming the rightful owner. 
 
 
+![[CitadelOfAltaerein.jpg]]![[Citadel Alterain.webp]]
