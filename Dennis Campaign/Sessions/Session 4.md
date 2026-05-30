@@ -24,7 +24,7 @@ we move south east and find an old abandoned logging camp. some of the houses ar
 
 We meet goblins, Frank can understand them so he communicates with them. We find out they are Froblins, we make a deal with them trading 5 rations for some water. Ruen finds a well behind one of the houses and trying to push a goblin away, he pours water over him and the goblin tries setting him on fire. 
 
-Frank, tells the goblins that they cant set the houses on fire since the fire is tired. then the goblins went away. Ruen tells the group of the well and they gather as much water they can from the well, and then notice a something just under the water. Timothy goes into the water and followes a path through the hole in the well into a cave, where he sees something coming from the darkness and he jumps back into the water and gets pulled back up. 
+Frank, tells the goblins that they cant set the houses on fire since the fire is tired. then the goblins went away. Ruen tells the group of the well and they gather as much water they can from the well, and then notice a something just under the water. Timothy goes into the water and follows a path through the hole in the well into a cave, where he sees something coming from the darkness and he jumps back into the water and gets pulled back up. 
 
 Following Frank from well, comes a small water elemental, that comes out of the well an floats into one of the houses and envelopes one of the dead men there, then returns to the well after "sniffing" at Ruen. 
 
