@@ -4,7 +4,7 @@ Date: 11-04-26
 GM: Mikkel
 Players:  Dennis, Elyas, Birnir
 Characters : Willow, Cerris, Darwin
-Starting place: 
+Starting place: Equjay town
 ## Session notes
 We start in the loggings the Equjay provide for us. 
 
@@ -45,10 +45,6 @@ After resisting the mental effects then Darwin woke up in the Jungle and realize
 we gathered up again and shared what we saw and tried to calm down. 
 
 Renali then sendt out some spiders to search for the third totem, and we returned to the Equjay town. 
-
-
-
-
 ## NPC
 
 ## Loot
